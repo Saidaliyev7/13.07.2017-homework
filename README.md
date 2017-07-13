@@ -1,0 +1,1 @@
+homeworki na tamamam etmiwem 4cunu hec anlamadim 5 cini ise yazmaqa cox caliwiram 
